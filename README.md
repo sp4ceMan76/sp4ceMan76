@@ -1,1 +1,1 @@
-👋 Hello, I am **@sp4ceMan** (**DEVELOPER** and **DESIGNER**)
+👋 Hello, I am **@sp4ceMan**
